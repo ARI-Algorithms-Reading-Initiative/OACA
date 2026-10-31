@@ -1,1 +1,1 @@
-# OACA.100 W28 course set.
+# OACA.100 Winter 28 course set.
